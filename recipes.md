@@ -114,3 +114,23 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Homemade Vanilla Pudding
+
+Ingredients:
+- 2 ½ cups (600ml) milk (whole or 2%)
+- ½ cup (100g) granulated sugar
+- ¼ cup (30g) cornstarch
+- ¼ tsp salt
+- 2 large egg yolks
+- 2 tbsp (30g) unsalted butter
+- 2 tsp vanilla extract
+
+Instructions:
+1.	Mix dry ingredients: In a medium saucepan, whisk together sugar, cornstarch, and salt.
+2.	Add milk: Gradually whisk in the milk until smooth.
+3.	Add egg yolks: In a small bowl, lightly beat the egg yolks. Slowly add a few spoonfuls of the milk mixture to the yolks (to temper them), then pour the yolk mixture into the pan.
+4.	Cook: Heat over medium heat, stirring constantly, until the mixture thickens and begins to bubble — about 7–10 minutes.
+5.	Finish: Remove from heat. Stir in butter and vanilla until smooth.
+6.	Chill: Pour into small bowls or cups. Cover with plastic wrap (press it directly onto the surface to prevent skin from forming). Chill for at least 1–2 hours.
+7.	Serve: Top with fresh fruit, whipped cream, or crushed cookies if desired.
