@@ -134,3 +134,29 @@ Instructions:
 5.	Finish: Remove from heat. Stir in butter and vanilla until smooth.
 6.	Chill: Pour into small bowls or cups. Cover with plastic wrap (press it directly onto the surface to prevent skin from forming). Chill for at least 1–2 hours.
 7.	Serve: Top with fresh fruit, whipped cream, or crushed cookies if desired.
+
+## Appetizers
+### Tomato Basil Bruschetta
+
+Ingredients:
+- 1 baguette (French bread), sliced into ½-inch thick slices
+- 2 tablespoons olive oil
+- 2–3 ripe tomatoes, diced
+- 2 cloves garlic, minced
+- 5–6 leaves fresh basil, chopped
+- Salt and pepper, to taste
+- Optional: Balsamic glaze for drizzling
+
+Instructions:
+1.	Toast the Bread
+	Preheat oven to 375°F (190°C).
+	Arrange the bread slices on a baking sheet and brush lightly with olive oil.
+	Toast in the oven for about 5–8 minutes, until golden and crisp.
+2.	Make the Topping
+	In a bowl, mix diced tomatoes, minced garlic, chopped basil, a pinch of salt, and black pepper.
+	Add 1 tablespoon olive oil and stir gently.
+3.	Assemble the Bruschetta
+	Spoon the tomato mixture onto each toasted bread slice.
+	Optional: drizzle with balsamic glaze for extra flavor.
+4.	Serve Immediately
+	Best enjoyed fresh and slightly warm!
