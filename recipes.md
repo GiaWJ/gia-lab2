@@ -50,15 +50,16 @@ Instructions:
 ### Spaghetti and Meatballs
 
 Ingredients:
-- 1 pound spaghetti
-- 1 pound ground beef
-- 1/2 cup bread crumbs
-- 1/4 cup milk
-- 1/4 cup grated Parmesan cheese
-- 1 egg
-- 2 cloves garlic, minced
-- Salt and pepper to taste
-- 1 jar (24 oz) spaghetti sauce
+- 8–10 oz (250–300g) cooked or quick-cook spaghetti (or any pasta you like)
+- 12–16 frozen or pre-cooked meatballs (beef, chicken, or vegetarian)
+- 1 jar (24 oz / ~680g) store-bought marinara or pasta sauce (e.g., Prego, Classico, Barilla)
+- 1 tbsp olive oil
+- 2 cloves garlic, minced (optional)
+- ¼ onion, chopped (optional)
+- 1 tsp dried herbs (basil, oregano — optional)
+- Salt and black pepper to taste
+- Grated Parmesan cheese (optional)
+- Fresh parsley or basil (optional, for garnish)
 
 Instructions:
 1. Cook spaghetti according to package instructions.
@@ -102,7 +103,7 @@ Ingredients (Makes ~24 cookies):
 - 1 large egg + 1 egg yolk
 - 2 tsp vanilla extract
 - 2 cups (340g) semisweet chocolate chips or chunks
-- Optional: ½ cup chopped walnuts or pecans
+-Optional: ½ cup chopped walnuts or pecans
 
 Instructions:
 1. Preheat oven to 375°F (190°C).
